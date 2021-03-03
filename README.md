@@ -21,7 +21,7 @@ Step 3
 Bake in preheated oven for 25 to 30 minutes. Do not overcook.
 
 Step 4
-To Make Frosting: Combine 3 tablespoons softened butter, 3 tablespoons cocoa, honey, 1 teaspoon vanilla extract, and 1 cup confectioners' sugar. Stir until smooth. Frost brownies while they are still warm.
+To Make Frosting: Combine 3 tablespoons softened butter, 3 tablespoons cocoa, honey, 1 teaspoon vanilla extract, and 1 cup confectioners sugar. Stir until smooth. Frost brownies while they are still warm.
 
 Step 5
 Enjoy your Chocolate Brownie.
